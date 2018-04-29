@@ -8,6 +8,6 @@ unocoin technologies
 
 <img src='https://i.pinimg.com/originals/0a/48/d7/0a48d7dd1dbf31daadd63b1cc749c1dd.png'>
 
-[ Phone Number ](+ 919633917311)
+[ Phone Number ](tel:+919633917311)
 
 <a href="MAILTO:molranju@gmail.com">MAILTO:molranju@gmail.com</a>
